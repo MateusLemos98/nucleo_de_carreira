@@ -8,5 +8,5 @@ Lucas Soares Kirchesch.
 
 José Gomes da Silva Filho.
 
-Gabriel Bastos.
+Gabriel Bastos da Silva.
 
